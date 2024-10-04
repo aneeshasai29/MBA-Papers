@@ -1,1 +1,1 @@
-# MBA-Papers
+# MBA Papers
